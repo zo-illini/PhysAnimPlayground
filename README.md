@@ -23,6 +23,12 @@
 ![企业微信截图_16275407561250](https://user-images.githubusercontent.com/22382526/127443875-839eeb99-4204-4301-b80d-e3ed1e1556a3.png)
 
 
+
+https://user-images.githubusercontent.com/22382526/127445065-45182fad-e265-42f0-90fb-5b15c6f0d20f.mp4
+
+
+
+
 # 受击物理动画
 
 点击进入关卡
